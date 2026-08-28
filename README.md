@@ -1,1 +1,1 @@
-# quanttide-insight-of-communication
+# quanttide-insight-of-communication-management
